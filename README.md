@@ -1,1 +1,1 @@
-![](https://files.catbox.moe/0wvgr7.gif)
+⁰ [front](https://pluralkit.xyz/f/wuvhgp?c=f) ¹ [prn.cc](https://prns.cc/mvymv) 
